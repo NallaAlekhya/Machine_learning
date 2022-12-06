@@ -6,5 +6,5 @@ Alekhya Nalla
 
 700734522
 
-axn45220@gmail.com
+axn45220@ucmo.edu
 
